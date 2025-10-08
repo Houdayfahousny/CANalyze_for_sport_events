@@ -39,4 +39,4 @@ Pour plus d'informations sur l'installation, l'utilisation et la maintenance de 
 
 **Contact:**
 
-Pour toute question ou commentaire concernant le projet Canalyse 2025, veuillez contacter [nabiladouma23@gmail.com].
+Pour toute question ou commentaire concernant le projet Canalyse 2025, veuillez contacter [houdayfahousny@gmail.com].
